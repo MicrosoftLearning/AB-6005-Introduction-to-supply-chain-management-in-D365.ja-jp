@@ -1,0 +1,1 @@
+# AB-6005-Introduction-to-supply-chain-management-in-D365.ja-jp
